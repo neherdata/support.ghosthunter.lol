@@ -1,0 +1,1 @@
+# support.ghosthunter.lol
